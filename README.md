@@ -1,4 +1,4 @@
-[![MasterHead](https://camo.githubusercontent.com/7b0b31a9d649352b6583905a0150c6ae4bc0c7b722e5cfbb6b28ca0ba01fb22c/68747470733a2f2f696e646f616e616c79746963612e636f6d2f7374617469632f696d616765732f62616e6e6572722e676966)](https://rishavchanda.io)
+[![MasterHead]([https://camo.githubusercontent.com/7b0b31a9d649352b6583905a0150c6ae4bc0c7b722e5cfbb6b28ca0ba01fb22c/68747470733a2f2f696e646f616e616c79746963612e636f6d2f7374617469632f696d616765732f62616e6e6572722e676966)](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgithub.com%2FAnmol-Baranwal%2FCool-GIFs-For-GitHub&psig=AOvVaw2jq2duk98fZm1Y3juKAt3H&ust=1716642750177000&source=images&cd=vfe&opi=89978449&ved=0CBAQjhxqFwoTCNiKqtyupoYDFQAAAAAdAAAAABAT)](https://rishavchanda.io)
 
 # 💫 About Me:
 I'm Sharmila Kanagaraj! <br><br>Imagination is the only weapon in the war against reality ✨🚀
