@@ -22,7 +22,7 @@ I'm Sharmila Kanagaraj! <br><br>Imagination is the only weapon in the war agains
 [![](https://visitcount.itsvg.in/api?id=sharmilakanagaraj55&icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/https://www.paypal.com/paypalme/sharmilakanagaraj) 
+  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://www.paypal.com/paypalme/sharmilakanagaraj) 
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
