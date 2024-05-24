@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Sharmila Kanagaraj! <br><br>Turning imagination into reality 🚀
+I'm Sharmila Kanagaraj! <br><br>Imagination is the only weapon in the war against reality ✨🚀
 
 
 ## 🌐 Socials:
